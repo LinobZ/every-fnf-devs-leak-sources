@@ -1,4 +1,4 @@
-# Tracklist
+# Every FNF Leaks Tracklist
 - [Kawaisprite - Fresh (Instrumental)](https://www.youtube.com/watch?v=RyIHeADORPo)
 - [Kawaisprite - Thorns (Instrumental)](https://youtu.be/sxqBZvZTG3Y?si=W8GqElaUGZkhTogl)
 - [Kawaisprite - Radical](https://www.youtube.com/watch?v=IJZG-95rdSM) *(Can't find an original upload sorry)*
