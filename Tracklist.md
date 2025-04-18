@@ -1,7 +1,7 @@
 # Tracklist
 - [Kawaisprite - Fresh (Instrumental)](https://www.youtube.com/watch?v=RyIHeADORPo)
 - [Kawaisprite - Thorns (Instrumental)](https://youtu.be/sxqBZvZTG3Y?si=W8GqElaUGZkhTogl)
-- [Kawaisprite - Radical](https://www.youtube.com/watch?v=IJZG-95rdSM) %%Can't find an original upload sorry%%
+- [Kawaisprite - Radical](https://www.youtube.com/watch?v=IJZG-95rdSM) //Can't find an original upload sorry
 - [Kawaisprite - Lit Up (Instrumental)](https://www.youtube.com/watch?v=M04IDK0MKEU)
 - [Kawaisprite - Roses (Instrumental)](https://www.youtube.com/watch?v=Ezm1sK0LoME)
 - [Kawaisprite - Ugh (Instrumental)](https://youtu.be/qAz6UfKb2tk?si=-GXMSsRuX8Ahgy74)
